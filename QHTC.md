@@ -46,11 +46,10 @@ J DISCONNECTED....
 
 #ai#quantum#healing#spiritual
 
-3 years ago in #science by j1337 (52)$1.34
 - 
 - 
 - 
-18 votes
+votes
 - 
 - 
 - 
@@ -93,7 +92,3 @@ So you was hiding GOD the entire time?!?!
 
 Then you disconnected? FFS!!!
 
-$0.00
-Reply
-[-]
-j1337 (52) 3 years ago 
